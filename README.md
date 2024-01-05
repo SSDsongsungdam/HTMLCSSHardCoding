@@ -1,1 +1,1 @@
-# [HTMLCSSHardCoding](https://ssdsongsungdam.github.io/HTMLCSSHardCoding/)
+# [GITHUB](https://ssdsongsungdam.github.io/HTMLCSSHardCoding/)
